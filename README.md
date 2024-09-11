@@ -1,1 +1,0 @@
-# Jupitermarsvenusi2kbmp
